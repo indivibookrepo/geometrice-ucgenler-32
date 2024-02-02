@@ -1,0 +1,1 @@
+# geometrice-ucgenler-32
